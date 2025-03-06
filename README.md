@@ -1,1 +1,2 @@
 # Fernando-Boudourian-Oriente-Medio-y-el-tablero-de-poder
+Las crisis en Oriente Medio han acelerado un cambio en el equilibrio geopolítico. Mientras EE.UU. enfrenta desafíos para sostener su hegemonía, China y Rusia han avanzado estratégicamente en la región. La diplomacia energética y militar ha redefinido alianzas, desplazando el poder tradicional. Oriente Medio ya no es solo un conflicto regional, sino un eje clave en la transformación del orden global.
